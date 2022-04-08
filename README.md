@@ -1,0 +1,1 @@
+# konzolosVizsgaFel_SZG
